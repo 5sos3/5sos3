@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-#1 speckey fan + spectre's ACTUAL recommender
+#1 speckey fan + spectre's recommender
 <p align="center">
 <img src="https://files.catbox.moe/67eqm3.gif" width="30%" >
 <p align="center">
