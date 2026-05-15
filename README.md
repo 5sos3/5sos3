@@ -5,11 +5,11 @@
 <p align="center">
 <img src="https://files.catbox.moe/lg67w7.png" width="50%" height="50%" >
 <p align="center">
-scotty ou spectre ⠀ ⠀<img src="https://i.postimg.cc/44Sby9Yz/bearprint-pixel.png"> ⠀ ⠀it/its/itself
+potion ⠀ ⠀<img src="https://i.postimg.cc/44Sby9Yz/bearprint-pixel.png"> ⠀ ⠀hehim
 <p align="center">
-gfluid ⠀aro ⠀intersx ⠀rabiespride ⠀lesbian
+transguy ⠀aro ⠀intersx ⠀rabiespride ⠀mlm
 <p align="center">
-bpdtism ⠀aspd ⠀system ^w* yumeshipper
+bpdtism ⠀aspd ⠀system ⠀door soulbounder
 </p>
 
 <p align="center">
