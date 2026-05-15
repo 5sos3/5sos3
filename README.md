@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=mafiosomayhem&label=　♡　&color=000000">
+<img src="https://komarev.com/ghpvc/?username=mafiosomayhem&label=　♡　&color=7cfe95">
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/lg67w7.png" width="50%" height="50%" >
+<img src="https://files.catbox.moe/jo9tsm.gif" width="40%" height="40%" >
 <p align="center">
 potion ⠀ ⠀<img src="https://i.postimg.cc/44Sby9Yz/bearprint-pixel.png"> ⠀ ⠀hehim
 <p align="center">
@@ -11,6 +11,3 @@ transguy ⠀aro ⠀intersx ⠀rabiespride ⠀mlm
 <p align="center">
 bpdtism ⠀aspd ⠀system ⠀door soulbounder
 </p>
-
-<p align="center">
-<img src="https://files.catbox.moe/v81p3a.gif" width="40%" height="40%" >
